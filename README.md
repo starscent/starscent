@@ -3,7 +3,7 @@
 <br>
 
 <p align="center"> ☆: <a href="https://retrospring.net/@nick_is_cool"> 
-  Retrospring . 
+  Retrospring.
 <a>
  ⭑
 <a href="https://www.tumblr.com/lavendergalactic">

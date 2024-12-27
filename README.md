@@ -2,10 +2,10 @@
 
 <br>
 
-<p align="center"> ☆: <a href="https://retrospring.net/@nick_is_cool"> 
+<p align="center"> <a href="https://retrospring.net/@nick_is_cool"> 
   Retrospring.
 <a>
- ⭑
+ ♡
 <a href="https://www.tumblr.com/lavendergalactic">
  Fischl graphic credit !
  </a>

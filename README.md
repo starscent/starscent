@@ -8,7 +8,5 @@
   𝑅etrospring.
 <a>
  ♡
-<a href="https://www.tumblr.com/lavendergalactic">
- 𝐹ischl 𝑔raphic 𝒸redit !
- </a>
+
  

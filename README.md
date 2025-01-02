@@ -1,6 +1,6 @@
 
-<img align="left" src="https://i.pinimg.com/736x/f0/7a/fc/f07afc58b02c9784f5b354954ed59a07.jpg" width="360"> <p align="center"> **𝐻ey! 𝒾'm 𝓃icholas** <br>
-<br> 𝐻e/𝒽im <br> 𝓂lm <br> <br> 𝒾 𝒸an 𝓊sually 𝒷e 𝓈een 𝒶t 𝓉he 𝒽yv 𝒶rea! </p>
+<img align="left" src="https://i.pinimg.com/736x/f6/c6/18/f6c6188f095e4df9f6a32c9cf42dfa48.jpg" width="360"> <p align="center"> **Hello, i am nicholas, but you can call me nick ~ !** <br>
+<br> He/him ~ <br> mlm <br> <br> normally found at hoyo area . </p>
 
 <br>
 
